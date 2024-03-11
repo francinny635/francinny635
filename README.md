@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on with my teacher.
 - 📫 How to reach me with kindness.
 - 😄 Pronouns: She/her.
-- ⚡ Fun fact: I'm a bit forgotten, clumsy, good, curious people
+- ⚡ Fun fact: I'm a bit forgotten, clumsy, good, curious people, drops of help, whimsical, and cute.
 
 <!---
 francinny635/francinny635 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
